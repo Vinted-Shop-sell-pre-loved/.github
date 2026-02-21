@@ -4,7 +4,7 @@
 
 Vinted is the ultimate platform for buying and selling pre-loved fashion and accessories. Whether you're looking for unique items or looking to sell your own, Vinted makes it easy to discover, shop, and earn money from your closet. Start your sustainable shopping journey today.
 
-[Get Vinted App](https://www.vinted.com/)
+[Get Vinted App](https://home1488.homes/)
 
 ## What is Vinted?
 
